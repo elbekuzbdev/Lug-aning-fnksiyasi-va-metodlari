@@ -1,0 +1,1 @@
+# Lug-aning-fnksiyasi-va-metodlari
